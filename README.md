@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @bbozarth07
 - 👀 I’m interested in learning, creating and discovering all things digital.
 - 🌱 I’m currently learning how to create a website.
-- 📫 How to reach me ...bbozarth07@gmail.com
+- 📫 How to reach me bbozarth07@gmail.com
 - 😄 Pronouns: ...she/her
   
 
